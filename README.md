@@ -1,3 +1,4 @@
 # Computer-Science-3
 
-hi
+Magtoto, Ceryna Eulyss P.
+21 9-Arayat
